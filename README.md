@@ -1,2 +1,1 @@
-# tim
-My rep
+# Timmaj
